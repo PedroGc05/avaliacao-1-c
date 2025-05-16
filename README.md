@@ -2,7 +2,7 @@
 
 ## Integrante do Grupo
 
-* Pedro Guilherme Campos - UP OSÓRIO - SEX/NOITE
+* Pedro Guilherme Campos RMG: 38974223 - UP OSÓRIO - SEX/NOITE
 
 ## Explicação dos 10 exercícios:
 
